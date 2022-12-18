@@ -1,1 +1,1 @@
-# rsschool-cv
+https://iPeki.github.io/rsschool-cv/
